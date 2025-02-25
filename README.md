@@ -1,2 +1,2 @@
-Jakub Sobczyński IO1 169499__
+Jakub Sobczyński IO1 169499 <br />
 Jakub Kosidowski IO1 
